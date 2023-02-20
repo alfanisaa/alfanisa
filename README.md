@@ -1,6 +1,6 @@
 # alfanisa
 Halo semua
-Perkenalkan nama saya **Alfanisa Safvira*
+Perkenalkan nama saya **Alfanisa Safvira**
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/alfanisasafviran/)ku ya.
  
